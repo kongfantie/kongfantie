@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kongfantie
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning game engines
+- 💞️ I’m looking to collaborate on game projects
+- 😄 Pronouns: he/him
